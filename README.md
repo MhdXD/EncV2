@@ -6,7 +6,7 @@
 ### Akun Sosial
 * [**FACEBOOK**](https://fb.me/llovexnxx)
 * [**WAHTSAPP**](https://wa.me/6283143565470)
-* [**Github**](https://Github.com/Dumai-991
+* [**Github**](https://Github.com/Dumai-991)
 
 ### Donasi
 * Dana, Ovo, Gopay, Pulsa, ShopeePAY
